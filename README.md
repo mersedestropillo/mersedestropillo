@@ -9,6 +9,5 @@
 
 
 ### Connect with me:
-
-(https://instagram.com/mersedesll)
+instagram.com/mersedesll
 
