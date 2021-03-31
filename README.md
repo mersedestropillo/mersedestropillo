@@ -10,4 +10,5 @@
 
 ### Connect with me:
 
-![image1](<img align=”left” alt=”jobin_james_ride | Instagram” width=”22px” src=”https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />)
+(https://instagram.com/mersedesll)
+
